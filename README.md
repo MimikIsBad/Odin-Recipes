@@ -1,1 +1,1 @@
-# Odin-Recipes
+Within Recipe Haven you can explore diverse, easy-to-follow recipes spanning cuisines, dietary needs, and skill levels. Join our community and elevate your culinary adventures today!
